@@ -1,4 +1,4 @@
 # ShadiX Skins
 
-# [#azer8c but azer](https://b.catgirlsare.sexy/kFOEtb1t.osk)
+# [Tokyo Ghoul beta by kaimu](https://b.catgirlsare.sexy/bk0K4CzX.osk)
 ![](https://b.catgirlsare.sexy/8VoFAdDy.png)
