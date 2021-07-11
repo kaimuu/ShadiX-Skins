@@ -1,5 +1,4 @@
 # ShadiX Skins
 
-# [Tokyo Ghoul beta by kaimu](https://b.catgirlsare.sexy/bk0K4CzX.osk)
-![](https://b.catgirlsare.sexy/8VoFAdDy.png)
+# [Tokyo Ghoul beta by kaimu](https://github.com/kaimuu/ShadiX-Skins/raw/main/Tokyo%20Ghoul%20MixEdit.osk)
 ![](https://b.catgirlsare.sexy/8VoFAdDy.png)
