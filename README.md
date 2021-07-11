@@ -1,6 +1,6 @@
 [ShadiX](https://osu.ppy.sh/users/15632146)
 
-# [Shadix V2.0 [NM]](https://github.com/kaimuu/ShadiX-Skins/raw/main/-%20%23Shadix%20V2.0%20%5BNM%5D%20-.osk)
+## [Shadix V2.0 [NM]](https://github.com/kaimuu/ShadiX-Skins/raw/main/-%20%23Shadix%20V2.0%20%5BNM%5D%20-.osk)
 ![](https://b.catgirlsare.sexy/xDSBcHxR.png)
 
 # [MonkoEdit x Cookiezi](https://github.com/kaimuu/ShadiX-Skins/raw/main/MonkoEdit%20x%20Cookiezi.osk)
