@@ -14,7 +14,7 @@
 # [Tokyo Ghoul beta by kaimu](https://github.com/kaimuu/ShadiX-Skins/raw/main/Tokyo%20Ghoul%20MixEdit.osk)
 ![](https://b.catgirlsare.sexy/OVun_Q0A.png)
 
-### [Momanake](https://osu.ppy.sh/users/1996405)
+### [MrMomanake](https://osu.ppy.sh/users/1996405)
 
 # [《INITAL D》Momanake 『1.0』 ](https://drive.google.com/file/d/1AbN8H7lax37SzxJtD_PSSdmps2M9S6es/view?usp=sharing)
 ![](https://b.catgirlsare.sexy/O2gpfTD6.png)
